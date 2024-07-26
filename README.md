@@ -12,6 +12,7 @@
   |20240723-morning walk<br>night-riding|1h|水稻基地|
   |20240724-morning walk|1h|爵世名邸外墙|
   |20240725-morning walk|1h|爵世名邸外墙|
+  |20240726-morning walk|59min,5.3公里|研究所内|
 
 ## Daily English-spoken
   |Spoken English|Time(30)|Note|
