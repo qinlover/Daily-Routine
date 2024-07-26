@@ -3,7 +3,15 @@
 ## Daily work-out
   |daily work-out|Time|Note|
   | --- | --- | --- |
-  |20240717-morning running|1 h|学院|
+  |20240717-morning running|1h|学院|
+  |20240718-morning running|1h|滨湖跑道|
+  |20240719-morning running|1h|滨湖跑道|
+  |20240720-morning running<br>night-riding|1h|滨湖跑道|
+  |20240721-没有运动<br>night-riding|||
+  |20240722-morning running|1h|水稻基地|
+  |20240723-morning walk<br>night-riding|1h|水稻基地|
+  |20240724-morning walk|1h|爵世名邸外墙|
+  |20240725-morning walk|1h|爵世名邸外墙|
 
 ## Daily English-spoken
   |Spoken English|Time(30)|Note|
