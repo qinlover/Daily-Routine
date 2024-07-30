@@ -15,6 +15,8 @@
   |20240726-morning walk|59min,5.3公里|研究所内|
   |20240727-no workout but tired|1.4w steps|通程+五一+IFS|
   |20240728-no workout|1.2w steps|万家丽28 floor and 11 floor|
+  |20240729-no morning workout|晚上散步20分钟|爵世名邸外墙|
+  |20240730-morning walk|50min|爵世名邸外墙|
 
 ## Daily English-spoken
   |Spoken English|Time(30)|Note|
