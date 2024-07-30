@@ -19,6 +19,6 @@
 ## Daily English-spoken
   |Spoken English|Time(30)|Note|
   | --- | --- | --- |
-  |[我的英语日常](https://www.youtube.com/watch?v=7J96ESznKMQ&t=56s)|6 times|[My daily routine](https://github.com/qinlover/Daily-Routine/blob/main/01_Spoken_English/01%20My%20daily%20routine.md)|
+  |[我的英语日常](https://www.youtube.com/watch?v=7J96ESznKMQ&t=56s)|7 times|[My daily routine](https://github.com/qinlover/Daily-Routine/blob/main/01_Spoken_English/01%20My%20daily%20routine.md)|
   |[20分钟学会20个英语动词](https://www.youtube.com/watch?v=OXmaz05icPk)|3 times|[20 verbs in 20 minutes](https://github.com/qinlover/Daily-Routine/blob/main/01_Spoken_English/02_20%20verbs%20in%2020%20minutes.md)|
   |[非母语英语者的难词](https://www.youtube.com/watch?v=VvfCTOyEPSc&t=127s)|4 times|[Difficult words to pronounce by non-native speakers](https://github.com/qinlover/Daily-Routine/blob/main/01_Spoken_English/03_difficult%20words%20to%20pronounce%20by%20non-native%20speakers.md)|
