@@ -30,446 +30,283 @@
     If you feel like your routine is a little stale and want to shake things up, give PrepLey a try.
     You can use filters to find the perfect tutor for your level and budget and fit lessons into your busy schedule.
 
-## Modified by Kimi
+### grits
 
-Hello, everybody!
-It's Aringa, and welcome back to my YouTube channel.
-In today's video, I will teach all of you vocabulary related to daily routines. 
-I will show you all of the activities I do in my everyday life, and you might have the same activities. 
-As you just saw, I just woke up; I'm still wearing my pajamas, or my PJs. 
-I normally start my morning around 8:00 a.m. and I wake up to the sound of my alarm clock.
-I'm not a morning person, so sometimes I will hit snooze on my alarm clock, 
-and that's the button that will postpone the alarm, so I'll have an extra 5 or 10 minutes to sleep in. 
-Then, after I wake up, I will get out of bed, so I will actually get up. 
-I will stretch my arms, stretch my legs, 
-and then I will head straight to the bathroom where I wash my face and then I will brush my teeth. 
-Of course, every morning routine looks different, 
-so if you want to get out of bed and then hop right into the shower, that's completely fine.
+Grits 是一种美国南部地区非常常见的小米面粉制品，类似于中国的面条，但通常比面条更细腻、软嫩。在美国南部一些地方，grits被视为主食或早餐食品。它可以与牛奶、鸡蛋、肉片等调味品一起煮熟后享用，也可以作为一种主食直接吃。
 
-Now, I'll show you what my daily routine looks like, but now I have to take my dog on a walk. 
-Right now, I'm outside, and this is something I do every morning. 
-I take my dog, Ozuna, on a walk. 
-If you have a dog like I do, you should go outside every morning to take your dog on a walk,
-that way your dog won't pee or poop inside your house. 
-When I go outside and go on a walk with my puppy, 
-I always bring a bag, a plastic bag, in case he poops outside, that way I can pick it up and throw it in the trash. 
-Now, if you do have a cat like I do, then you'll have a totally different routine in the morning. 
-Cats pee and poop in the litter box, 
-so you'll have to get a pooper scooper and scoop out the poop and the pee and put it in a plastic bag and then throw it away.
-So, since I have a dog and a cat, my routine is a little bit complicated every single day 
-because I have to take out my dog on a walk and I have to clean the litter box.
+下面是三个使用 grits 的例句：
 
-A big part of my daily routine, like yours, is learning a new language. 
-You're learning English with me right now, and right now I'm actually working on improving my Spanish and picking up some Mandarin. 
-And the best part is I can learn without even leaving my house thanks to today's sponsor, PrepLey. 
-PrepLey is a language learning platform with tons of native tutors who can help you get better at English.
-You can use filters to find the perfect tutor for your level and budget and fit lessons into your busy schedule. 
-If you feel like your routine is a little stale and want to shake things up, give PrepLey a try. 
-Just practicing English every day can make you more fluent and confident in no time. 
-Use my code ADITA50 for 50% off your first lesson and start talking about your daily routine with confidence. 
-Thanks to PrepLey for sponsoring this part of the video.
+- 这家乡村酒馆的早餐很出色，他们的 grits 超级好！（The<mark> farm-to-table restaurant </mark>has an amazing breakfast, their grits are super good!）
+- 我们在南部地区度过了周末，吃了很多 grits 和烧焦的培根。 （We spent the weekend in the south and had a lot of grits with burnt bacon.）
+- 这家小店出售各种种类的 grits，你可以尝试不同的口味和调味品。（This small shop
+  sells different varieties of grits, you can try different <mark>flavors and toppings</mark>.]
 
-Let's get back to it now. It's time to eat breakfast.
-So, some people in different parts of the world, they may skip breakfast or they might fast, 
-but I normally like to eat breakfast because I don't want to leave the house on an empty stomach. 
-So, in order to make breakfast, I will go to my fridge, open it, and see what kind of food I have.
-I normally don't like to eat a typical American breakfast that consists of eggs, bacon, grits, and sausage.
-I like eating fruits and veggies, or I like eating stuff from different cultures, like anpan, which I'm going to make right now.
-Normally, it takes me around 10 to 15 minutes to make breakfast,
-but let me know down below if you guys eat breakfast or do you fast and skip breakfast.
+### arepa
 
-After eating breakfast, it's time to make the bed because, excuse me, I have to make the bed. 
-Buddy the cat doesn't like when I make the bed. I just made the bed, and I like making my bed every morning because I like starting off my day with a clean room, so my bed looks clean, everything looks so organized, and now I can finally start my day. But I'm still in my pajamas, and now I have to get dressed. But I won't get dressed to go to work; I will get dressed in athletic gear because I'm going to the gym. But before going to the gym, let me know down below in the comments if you make your bed every morning.
+Arepa 是一种来自拉丁美洲尤其是<mark>委内瑞拉和哥伦比亚</mark>的面包，外观类似于汉堡包，但口味更加丰富。它通常由玉米粉或其他种类的小麦粉制成，然后烘烤成金黄色的硬质面包。
 
-I just walked to the gym, and right now I'm inside the gym. So I try to go to the gym almost every day, but sometimes I can't go because life does get busy. But today, I'm here at the gym to exercise and work out, so I'll do some physical activity. By the way, if you guys haven't watched my video about gym vocabulary, go ahead and check it out because I recorded that in this same gym. I usually work out for around 1 hour, and I like going to the gym because it makes me feel strong. I get stronger, I build my muscles, and I feel good. I look good, and it makes me feel less lazy. So, I'll work out for 1 hour, and then I'll head home.
+下面是三个使用 arepa 的例句：
 
-Woo, I just finished working out. I'm all sweaty, I burned some calories, and also I feel a little bit sore. And now I have to go walk home and then go to work, but I'm still wearing my gym clothes. So when I go home, I will take a quick shower because I can't work in my gym clothes. And then I'll get dressed and go to work.
+- 在我们到委内瑞拉之前，我从未听说过 arepa，我现在很爱吃它们。 （Before we went to Venezuela, I had never heard of arepas, but now I love them.）
+- 我们在哥伦比亚旅行时遇到了美味的 arepa，我们尝试了各种口味和填充物。 (We traveled in Colombia and met delicious arepas, we tried <mark>different flavors and fillings</mark>.)
+- 这家拉丁风格餐厅的 arepa 超级热门，人们争相购买。 （The Latin-style restaurant's
+  arepa is super popular, people are fighting for it.）
 
-I just got out of the shower, and when you take a shower, you bathe yourself with soap and water. And as you can see, I have a towel wrapped around my head because I still need to dry my hair. Now I'm almost ready to go to work, but I still need to put on makeup on my face. So this is a very important step to my day because I like to look nice and professional when I go to work, and it's an important part of women's daily routines.
+### Pajamas
 
-Now it's time to go to work, and you might be wondering, "Adan, where do you work? As an English teacher, do you work in an office? Do you have another job? What do you normally do?" Well, this is actually my workspace. I work on my computer. I work from home, so I basically edit all of my videos here, and I spend a lot of time editing my videos. Also, here I write my scripts, I brainstorm ideas, and I not only sit inside my house. I go to places to teach all of you guys English, and I'll be doing that in this video where I'll go to a park and I'll ask people what does their daily routine look like every day. As I said before, sometimes I work from home, but in order to record videos for you guys, I go to different places to teach all of you guys English.
+Pajamas 是一种专门用来睡觉或放松的服装，通常在家里穿着。
 
-So when I leave my house and go to these different places, I will have to drive a car, or I can use public transit like a train or a bus, or I can walk there. And this is called commuting. So the journey from leaving your house to going to that certain place to work is called your commute. My commute varies every single day. Sometimes I even have to drive 1 hour to get to a certain place to begin working. Let me know down below in the comments how long your commute is and do you normally drive to work, or do you take public transit like a train or bus, or do you walk to work.
+传统上的睡衣是很简单和舒适的设计，以便于睡眠时能够移动身体方便。
 
-So to prepare for the day, I usually like to pack things in a bag or in containers. For example, before I leave the house, I like to pack my microphones and a couple of snacks before I leave. But some people might pack a lunch if they work in an office or in a different place, and they pack a lunch if they can't come home for lunch.
+下面是一些使用 pajamas 的例句：
 
-Hi, what's your name? Alejandro. Hi, Alejandro. Can you tell me a little bit about your daily routine? My daily routine: I wake up, um, the first thing I do is I go for some coffee in the kitchen. Um, after I look for my coffee, I go and take a shower. After I take a shower, I go through my morning routine, just put cream, sunblock, and from there I get ready to go to work, Monday through Friday. That's what I usually do. And what time do you normally go to work? On Tuesdays and Thursdays, I go to work around 6:00 a.m. And Monday and Wednesday, Friday, I usually go at 10:00 a.m.
+- 我们喜欢在晚上睡觉时穿着睡袍，感觉很舒服！（We love wearing our <mark>PJs </mark>to bed, it feels so cozy!）
+- 这个家的主人特别爱用各种色彩和花纹的睡衣，我们觉得很有趣。（<mark>The owner of the house</mark> loves his colorful and patterned pajamas, we find it fun.）
 
-Hi, what's your name? Samantha. Hi, Samantha. Can you tell me a little bit about your daily routine? Sure, yeah. Every day I wake up around 7:00, and I go for a little bit of a walk in the morning, and then I get ready for work, eat breakfast, and then I drive down here. I work down here. I work right over there. I work for a little bit, and then I
+### Athletic Gear
 
+Athletic gear 是一种专门用于运动和锻炼的服装和设备。
 
+这些产品通常设计得很舒适，同时也能提供良好的性能支持，帮助运动员更好地完成运动活动。
 
-## Raw 
-Hello everybody！
-It's aringa and welcome back to my YouTube channel.
-In today's video I will teach all of you vocabulary related to daily routines, 
-so I will show you all of the activities I do in my everyday life and you might have the
-same activities. As you just saw I just woke up, I'm still wearing my pajamas or
+下面是一些使用 athletic gear 的例句：
 
-my PJs and I normally start my morning around 800 a.m. and I wake up to the
+- 我们买了新的运动鞋，为即将到来的比赛做准备。（We bought new <mark>running shoes</mark> for the upcoming game.）
+- 这件运动服很舒适，而且也能很好地吸收汗液，我们觉得非常棒！（This <mark>athletic wear</mark> is so comfortable and absorbs sweat very well, we think it's great!）
 
-sound of my alarm
+Life does get budy.
 
-clock I'm not a morning person so sometimes I will hit snooze on my alarm
+- [ ] Gym vocabulary video, need to watch
+  
 
-clock and that's the button that will postpone the alarm so I'll have an extra
+### i feel a little bit sore
 
-5 minutes or 10 minutes to sleep in and then after I wake up I will get out of
+1. **After exercising for an hour, I feel a little bit sore.**
+  
+  - 经过一个小时的锻炼后，我感觉有点疼。
+2. **I slept on the floor last night, and now I feel a little bit sore.**
+  
+  - 昨晚我睡在地板上，现在感觉有点疼。
+3. **<mark>My muscles feel a little bit sore </mark>after carrying those heavy boxes.**
+  
+  - 搬完那些重箱子后，我的肌肉感觉有点疼。
 
-bed so I will actually get up I will stretch stretch my arms stretch my legs
+### Gym clothes
 
-and then I will head straight to the bathroom where I wash my face and then I
+*Gym clothes* 指的是在健身房或进行体育锻炼时穿的衣服，通常包括运动衫、运动短裤、运动裤、运动鞋等。这些衣服通常设计成轻便、透气、吸汗，以提高锻炼时的舒适度和效率。
 
-will brush my teeth of course every morning routine looks different so if
+**例句：**
 
-you want to get out of bed and then hop right into the shower that's completely
+1. **I always <mark>pack my gym clothes</mark> before heading to the <mark>fitness center.</mark>**
+  
+  - 我总是在去健身中心之前准备好我的健身服。
+2. **Wearing the right gym clothes can make a big difference in your <mark>workout performance</mark>.**
+  
+  - 穿对了健身服可以大大提高你的锻炼表现。
+3. **She bought new gym clothes to <mark>motivate herself to exercise more regularly</mark>.**
+  
+  - 她买了新的健身服以激励自己更规律地锻炼。
 
-fine now I'll show you what my daily routine looks like but now I have to
+### Bathe
 
-take my dog on a
+“Bathe” 是一个动词，意思是洗澡或沐浴。它可以指人或动物在水中清洁身体。
 
-walk right now I'm outside and this is something I do every morning I take my
+**例句：**
 
-dog Ozuna on a walk if you have a dog like I do you should go outside every
+1. **I like to bathe in warm water before going to bed.**
+  
+  - 我喜欢在睡觉前用温水洗澡。
+2. **She bathes her dog every Sunday to keep it clean and healthy.**
+  
+  - 她每周日给她的狗洗澡，以保持它的清洁和健康。
+3. **After a long hike, we<mark> decided to bathe in the cool river</mark>.**
+  
+  - 长途徒步后，我们决定在凉爽的河里洗澡。
 
-morning to take your dog on a walk that way your dog won't pee or poop inside
+### brainstorm ideas
 
-your house and when I go outside and go on a walk with my puppy I always bring a
+“I brainstorm ideas” 意思是集思广益，进行头脑风暴，以便产生各种想法或解决方案。这通常是在团队合作或创意活动中进行的一个过程。
 
-bag a plastic bag in case he poops outside that way I can pick it up and
+**例句：**
 
-throw it in the trash now if you do have a cat like I do then you'll have a
+1. **Every Monday, our team <mark>brainstorms ideas for the new project</mark>.**
+  
+  - 每周一，我们的团队会为新项目集思广益。
+2. **She loves to brainstorm ideas with her friends when planning a trip.**
+  
+  - 她喜欢在计划旅行时和朋友们集思广益。
+3. **During the meeting, we brainstormed ideas to improve customer satisfaction.**
+  
+  - 在会议期间，我们集思广益，提出了提高客户满意度的想法。
+
+### commuting
+
+“Commuting” 是指在家与工作地点之间的往返旅行。通常涉及到日常的通勤，如开车、乘坐公共交通工具等。
 
-totally different routine in the morning cats pee and poop in the litter box so
+**例句：**
 
-you'll have to get a pooper scooper and scoop out the poop and the pee and put
+1. **She spends an hour commuting to work every day.**
+  
+  - 她每天花一个小时通勤去上班。
+2. **<mark>Commuting during rush hour</mark> can be very stressful.**
+  
+  - 高峰时段的通勤可能会非常紧张。
+3. **He prefers working from home to avoid <mark>the long commuting time</mark>.**
+  
+  - 他更喜欢在家工作，以避免长时间的通勤。
+
+### cream sunblock
+
+“Cream sunblock” 指的是一种防晒霜，通常以乳霜形式出现，用于保护皮肤免受阳光中的紫外线伤害。它有助于防止晒伤和皮肤老化。
 
-it in a plastic bag and then throw it away so since I have a dog and a cat my
+**例句：**
 
-routine is a little bit complicated every single day because I have to take
+1. **Before going to the beach, make sure to apply a good cream sunblock.**
+  
+  - 在去海滩之前，一定要涂抹好防晒霜。
+2. **She always uses cream sunblock to protect her skin from<mark> sun damage</mark>.**
+  
+  - 她总是使用防晒霜来保护她的皮肤免受阳光伤害。
+3. **The cream sunblock should be reapplied every two hours for <mark>maximum effectiveness.</mark>**
+  
+  - 防晒霜应该每两个小时重新涂抹一次，以达到最佳效果。
 
-out my dog on a walk and I have to clean the litter box a big part of my daily
+### Buffalo wild wings
 
-routine like yours is learning a new language you're learning English with me
+“Buffalo Wild Wings” 是一家美国连锁餐厅，主要提供翅膀（鸡翅）和各种美式餐点。餐厅以其丰富的调味料和酱料选择而闻名，同时也提供体育赛事观看的场所。
 
-right now and right now I'm actually working on improving my Spanish and
+**例句：**
 
-picking up some Mandarin niow and the best part is I can learn without even
+1. **We went to Buffalo Wild Wings to enjoy some spicy <mark>chicken wings</mark> and watch the game.**
+  
+  - 我们去了 Buffalo Wild Wings，享受一些辣味鸡翅，并观看比赛。
+2. **Buffalo Wild Wings has <mark>a wide range of sauces </mark>to choose from for your wings.**
+  
+  - Buffalo Wild Wings 提供多种酱料供你选择，为你的鸡翅增添风味。
+3. **Their happy hour specials at Buffalo Wild Wings are great for <mark>grabbing a drink and some appetizers</mark>.**
+  
+  - Buffalo Wild Wings 的欢乐时光特价非常适合喝饮料和吃开胃菜。
 
-leaving my house thanks to today's sponsor prep Ley prep Ley is a language
+### stop by fast-food chains or restaurants
 
-learning platform with tons of native tutors who can help you get better at
+“Stop by fast-food chains” 意思是顺路去快餐连锁店。通常指在出行过程中短暂地去快餐店买食物或饮料。
 
-English you can use filters to find the perfect tutor for your level and budget
+**例句：**
 
-and fit lessons into your busy schedule if you feel like your routine is a
+1. **On our way to the beach, we stopped by fast-food chains to <mark>grab a quick meal</mark>.**
+  
+  - 在去海滩的路上，我们顺路去了快餐连锁店，快速吃了顿饭。
+2. **She often stops by fast-food chains for coffee<mark> on her way to work.</mark>**
+  
+  - 她经常在上班路上顺路去快餐连锁店买咖啡。
+3. **After the movie, we decided to stop by fast-food chains for some<mark> late-night snacks</mark>.**
+  
+  - 看完电影后，我们决定去快餐连锁店买点夜宵。
 
-little stale and want to shake things up give prle a try just practicing English
+### Take a quick nap to feel energized again
 
-every day can make you more fluent and confident in no time use my code adita
+“I need to take a quick nap to feel energized again.” 意思是我需要小睡一会儿，以重新感到精力充沛。这里强调了短时间的休息有助于恢复体力和精神状态。
 
-50 for 50% off your first lesson and start talking about your daily routine
+**例句：**
 
-with confidence thanks to prle for sponsoring this part of the video let's
+1. **<mark>After a long morning of meetings</mark>, I need to take a quick nap to feel energized again.**
+  
+  - 在经历了一个上午的会议后，我需要小睡一会儿，以重新感到精力充沛。
+2. **She usually takes a quick nap in the afternoon to feel energized again <mark>for the rest of the day</mark>.**
+  
+  - 她通常在下午小睡一会儿，以重新感到精力充沛，迎接接下来的一天。
+3. **To stay productive, he often takes a quick nap <mark>during lunch break </mark>to feel energized again.**
+  
+  - 为了保持高效，他常常在<mark>午休期间</mark>小睡一会儿，以重新感到精力充沛。
 
-get back to it now it's time to eat breakfast so some people in different
+### I'll be running errands
 
-parts of the world they may skip breakfast or they might fast but I
+**解释：**
 
-normally like to eat breakfast because I don't want to leave the house on an
+“I'll be running errands” 意思是我将会去办一些杂事或跑腿。这通常指的是为了完成一些日常任务而四处走动，例如购物、去邮局或处理其他日常事务。
 
-empty stomach so in order to make breakfast I will go to my fridge open it
+**例句：**
 
-and see what kind of food I have I normally don't like to eat a
+1. **I'll be running errands all morning, so I won't be available until the afternoon.**
+  
+  - 我整个上午都会在外面办事，所以下午之前都不方便联系。
+2. **She told me she'd be running errands and would meet me for lunch afterward.**
+  
+  - 她告诉我她会去办些事，之后会和我一起吃午饭。
+3. **Since I'll be running errands today, I'll <mark>pick up the groceries</mark> we need for dinner.**
+  
+  - 由于今天我要去办事，我会顺便把我们晚餐需要的杂货买回来。
 
-typical American breakfast that consists of eggs bacon grits and sausage I like
+### Household chores
 
-eating fruits and veggies or I like eating stuff from different cultures
+**解释：**
 
-like anpa which I'm going to make right now normally it takes me around 10 to 15
+“Household chores” 是指家庭中的日常杂务或家务活。通常包括打扫、洗衣、做饭、洗碗等工作。
 
-minutes to make breakfast but let me know down below if you guys eat
+**例句：**
 
-breakfast or do you fast and Skip breakfast
+1. **Every weekend, we divide the household chores among the family members.**
+  
+  - 每个周末，我们会在家庭成员之间分配家务活。
+2. **She spent the entire morning doing household chores, such as <mark>vacuuming and dusting</mark>.**
+  
+  - 她整个上午都在做家务，比如吸尘和擦灰。
+3. **They have a schedule to <mark>manage their household chores efficiently</mark>.**
+  
+  - 他们有一个时间表来有效管理家务活。
 
-[Music] after eating breakfast it's time to make
+### volleyball and pickleball
 
-the bed because it's Ms excuse me I have to make the bed
+**解释：**
 
-buddy the cat doesn't like when I make the bed
+“Volleyball” 是一种团队运动，通常在沙滩或室内进行，球员用手将球击过高网，试图使球落在对方场地内得分。
 
-I just made the bed and I like making my bed every morning because I like
+“Pickleball” 是一种结合了网球、乒乓球和羽毛球元素的球类运动，通常在小型球场上进行，使用桨拍和塑料球。
 
-starting off my day with a clean room so my bed looks clean everything looks so
+**例句：**
 
-organized and now I can finally start my day but I'm still in my pajamas and now
+1. **She plays volleyball every weekend <mark>at the local beach</mark>.**
+  
+  - 她每个周末都会在当地的海滩上打排球。
+2. **They recently started playing pickleball as a fun way to stay active.**
+  
+  - 他们最近开始打皮克球，作为保持活跃的一种有趣方式。
+3. **The gym offers classes for both volleyball and pickleball <mark>for all skill levels</mark>.**
+  
+  - 健身房提供不同水平的排球和皮克球课程。
 
-I have to get dressed but I won't get dress to go to work I will get dressed
+### I like to wind down and watch some TV。
 
-in athletic GE because I'm going to the gym but before going to the gym let me
+**解释：**
 
-know Down Below in the comments if you make your bed every morning I just
+“I like to wind down and watch some TV.” 意思是我喜欢放松一下，看电视。这里的“wind down”指的是放松和缓解压力的过程。
 
-walked to the gym and right now I'm inside the gym so I try to go to the gym
+**例句：**
 
-almost every day but sometimes I can't go because life does get busy but today
+1. **After a long day at work, I like to wind down and watch some TV.**
+  
+  - 工作了一整天后，我喜欢放松一下，看点电视。
+2. **She enjoys winding down in the evening by watching her favorite TV shows.**
+  
+  - 她喜欢在晚上通过观看自己喜欢的电视节目来放松。
+3. **On weekends, he likes to wind down and watch some TV with his family.**
+  
+  - 周末时，他喜欢和家人一起放松一下，看点电视。
 
-I'm here at the gym to exercise and work out so I'll do some physical activity by
+### moisturize
 
-the way if you guys haven't watched my video about gym vocabulary go ahead and
+**解释：**
 
-check it out because I recorded that in this same gym I usually work out for
+“Moisturize” 是一个动词，意思是给皮肤补充水分或保湿。通常指使用护肤产品如面霜、乳液等来保持皮肤的湿润和健康。
 
-around 1 hour and I like going to the gym because it makes me feel strong I
+**例句：**
 
-get stronger I build my muscles and I feel good I look good and it makes me
-
-feel less lazy so I'll work out for 1 hour and then I'll head home woo I just
-
-finished working out I'm all sweaty I burned some calories and also I feel a
-
-little bit sore and now I have to go walk home and then go to work but I'm
-
-still wearing my gym clothes so when I go home I will take a quick shower
-
-because I can't work in my gym clothes and then I'll get dressed and go to work
-
-I just got out of the shower and when you take a shower you bathe yourself
-
-with soap and water and as you can see I have a towel wrapped around my head
-
-because I still need to dry my hair now I'm almost ready to go to work but I
-
-still need to put on makeup on my face so this is a very important step to my
-
-day because I like to look nice and professional when I go to work and it's
-
-an important part of women's daily routines now it's time to go to work and
-
-you might be wondering Adan where do you work as an English teacher do you work
-
-in an office do you have another job what do you normally do well this is
-
-actually my workspace I work on my computer I work from home so I basically
-
-edit all of my videos here and I spend a lot of time editing my videos also here
-
-I write my scripts I brainstorm ideas and I not only sit inside my house I go
-
-to places to teach all of you guys English and I'll be doing that in this
-
-video where I'll go to a park and I'll ask people what does their daily routine
-
-look like every day as I said before sometimes I work from home but in order
-
-to record videos for you guys I go to different places to teach all of you
-
-guys English so when I leave my house and go to these different places I will
-
-have to drive a car or I can use public transit like a train or a bus or I can
-
-walk there and this is called commuting so the journey from leaving your house
-
-to going to that certain place to work is called your commute my commute varies
-
-every single day sometimes I even have to drive 1 hour to get to a certain
-
-place to begin working let me know Down Below in the comments how long your
-
-commuted is and do you normally drive to work or do you take public transit like
-
-a train or bus or do you walk to work so to prepare for the day I usually like to
-
-pack things in a bag or in containers for example before I leave the house I
-
-like to pack my microphones and a couple of snacks before I leave but some people
-
-might pack a lunch if they work in an office or in a different place and they
-
-pack a lunch if they can't come home for lunch hi what's your name Alejandro hi
-
-Alejandro can you tell me a little bit about your daily routine my daily
-
-routine I wake up um the first thing I do I go for some coffee in the kitchen
-
-um after I look for my coffee I go and take a shower after I take a shower I go
-
-through my morning routine just put cream Sun blog and from there I get
-
-ready to go to work Monday through Friday that's what I usually do and what
-
-time do you normally go to work on Tuesdays and Thursdays I go to work
-
-around 6:00 a.m. and Monday and Wednesday Friday I usually go go 10:00
-
-a.m. hi what's your name Samantha hi Samantha can you tell me a little bit
-
-about your daily routine sure yeah um every day I wake up around 7:00 and I go
-
-for a little bit of a walk in the morning and then I get ready for work
-
-eat breakfast and then I drive down here I work down here I work right over there
-
-I work for a little bit and then I try to go for a walk around lunchtime go to
-
-the park get some sunshine and eat lunch and then around 4:00 I head home for the
-
-day hi what's your name hi my name is earing hi arene what does your typical
-
-daily routine look like I get up in the morning time I go to work I work at
-
-Buffalo Wild Wings take my son to daycare get him come to practice showers
-
-dinner bed and the same thing it sounds like you're busy what's your favorite
-
-part about your daily routine um is spending time with my six-year-old son
-
-awesome well thank you so much no problem I just asked a couple people
-
-about what their daily routine looks like in English so let me know down
-
-below what your routine looks like and what's your favorite part about your
-
-routine normally after work maybe around 600 or 700 p.m. people like to stop by
-
-fast food chains or restaurants to pick up something to eat but I personally
-
-don't like eating out often because I feel like I cook a lot better and it's a
-
-lot cheaper to eat at your house instead of buying something at a restaurant or
-
-at a fast food chain so I'm going to walk back home now it's time to eat
-
-lunch this is called lunchtime now if you work in an office or outside of your
-
-house then you'll have around 30 to 60 Minutes every day to eat your lunch so
-
-sometimes you might pack a lunch to work or you might cook food at your house and
-
-bring it that's called packing your lunch or you might eat out in a
-
-restaurant but since I work from home and I love cooking I will make lunch
-
-right here in my kitchen [Music]
-
-so an interesting fact about me is that when I cook I don't follow a recipe but
-
-if I do follow a recipe I follow like five different recipes and I mix
-
-everything together so sometimes I'll add different vegetables or fruits in my
-
-recipes but I do think I am a pretty good Chef also I don't use a measuring
-
-cup so I just taste my food and if it needs more salt or some more flavor then
-
-I just add it I just finished making lunch and look how delicious my pasta
-
-looks I am super hungry so if I did work in an office then I would pack my lunch
-
-or bring in a container of food every single day because I like eating
-
-home-cooked meals since I have the opportunity to work from home and make
-
-lunch at home I like making my own lunch in my kitchen now I'm going to eat my
-
-lunch Bona
-
-Petit I've been awake since 8:00 a.m. I went to the gym I worked I took a shower
-
-and now I need to take a quick nap to feel energized again so now I'll catch
-
-you in a little bit I'll take a
-
-[Music] nap by the way let me know down below if
-
-you like to take naps see you in a little
-
-bit I just woke up from my nap what time is it oh my gosh it's 4:00 p.m. normally
-
-during this time if I don't take a nap on the couch or in my bed then I'll be
-
-running errands so I might go to the store to get something that I need for
-
-my house or I might be doing some household chores like watering my plants
-
-cleaning up the living room vacuuming or even doing things for my personal life
-
-like visiting my father and visiting my friends so basically people can run
-
-errands during this time or they can do their favorite hobbies but honestly this
-
-time depends on each person person for example some people might still be
-
-working at this time or some people might be getting up to go to work for a
-
-night shift right now I finished everything with work I don't have to run
-
-any errands so I don't have to buy anything for my pets I don't have to
-
-stop by the grocery store but during this time today it's really nice outside
-
-so I'll take a walk with my dog once again and we're going to go to the park
-
-and then we're going to get some ice cream
-
-[Music]
-
-during the summertime there's many activities you can do during the day for
-
-example you can go to a soccer game a baseball game you can go to the pool or
-
-you can even discover new hobbies some of my hobbies include playing sports I
-
-enjoy playing volleyball and pickle ball right now I don't have any games to play
-
-pickle ball or volleyball so that's why I'm here at the park let me know Down
-
-Below in the comments your favorite hobby right now it's nighttime it's dark
-
-out and I just ate dinner and I normally eat around 88 or 900 p.m. I kind of like
-
-to eat a late dinner and then after dinner I like to wind down and watch
-
-some TV I like to watch some YouTube some Netflix Hulu any kind of show or
-
-movie I really like to relax also when I wind down I also like to scroll on my
-
-phone so I'll go on Instagram Tik Tok Facebook and I'll watch videos funny
-
-videos like memes but sometimes I don't want to watch any TV or even go on my
-
-phone so I like to read a book I even like to play with my dog or my cat that
-
-way I can just relax and just kind of Disconnect from the world for a little
-
-bit I was watching a movie on the TV sorry for my yawn but I think it's
-
-getting late and now I need to get ready to go to bed so before going to bed and
-
-then falling asleep I need to change my clothes from my regular clothes into
-
-pajamas or PJs and then I need to remove my makeup wash my face moisturize do my
-
-skin care brush my teeth brush my hair take out my contacts because I wear
-
-contacts in my eyes and then I'll be ready to go to bed but before going to
-
-bed I still need to take out my dog on a walk so he doesn't pee or poop inside my
-
-apartment and I probably have I've taken him out like five or six times a day
-
-right now it's almost 11:00 and it's time to get in bed I'm sitting on the
-
-bed but I am getting in bed by pulling the covers up and before I fall asleep I
-
-will set an alarm for 8:00 a.m. on my watch that way I can do my daily routine
-
-all over again tomorrow now it's time to fall asleep and also finish this video
-
-thank you guys for coming along with me and seeing my daily routine go ahead and
-
-give me a like subscribe and I'll see you guys next week good night
-
-[Music]
-
-[Music]
+1. **It's important to <mark>moisturize your skin</mark> daily to prevent dryness.**
+  
+  - 每天给皮肤保湿很重要，以防止干燥。
+2. **She always moisturizes her face before applying makeup.**
+  
+  - 她总是在化妆前给脸部保湿。
+3. **During the winter months, you should moisturize more frequently to protect your skin.**
+  
+  - 在冬季，你应该更频繁地保湿，以保护皮肤。
