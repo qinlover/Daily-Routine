@@ -21,7 +21,7 @@
 ## 2025 运动记录
   |daily work-out|Time|Note|
   | --- | --- | --- |
-  |20250418 hit|40h|家里|
+  |20250418 hit|[40分钟低冲击燃脂训练](https://www.bilibili.com/video/BV1zL4y1A7DL/?spm_id_from=333.337.search-card.all.click&vd_source=eda48184317f9353aff7f54f3a7b556b)|家里|
 
 ## Daily English-spoken
   |Spoken English|Time(30)|Note|
