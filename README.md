@@ -18,6 +18,11 @@
   |20240729-no morning workout|晚上散步20分钟|爵世名邸外墙|
   |20240730-morning walk|50min|爵世名邸外墙|
 
+## 2025 运动记录
+  |daily work-out|Time|Note|
+  | --- | --- | --- |
+  |20250418 hit|40h|家里|
+
 ## Daily English-spoken
   |Spoken English|Time(30)|Note|
   | --- | --- | --- |
